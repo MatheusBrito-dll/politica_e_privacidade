@@ -45,7 +45,7 @@ Neste caso, a nova versão será disponibilizada nesta página e informada no ap
 
 Se você tiver dúvidas ou sugestões sobre esta política, entre em contato conosco:
 
-**E-mail**: suporte@meucarrinho.app.br
+**E-mail**: bradomosistemas@gmail.com
 
 ---
 
